@@ -15,4 +15,4 @@ Gestió tecnica audiovisual: Joel s'encarregarà de gestionar la part tecnica au
 
 
 ## Primera reflexió 
-Quins problemes ambientals o socials del centre, del barri o de la ciutat us agradaria investigar? 
+Quins problemes ambientals o socials del centre, del barri o de la ciutat us agradaria ivestigar? 
